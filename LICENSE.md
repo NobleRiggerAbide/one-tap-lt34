@@ -1,4 +1,4 @@
-#  
+#  Experience one tap like never before with one tap Scripts secure, the #1 Script. Includes auto-heal and no cooldown for unbeatable performance.
 
 
 
